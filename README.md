@@ -6,6 +6,7 @@
 - 🙏 God's work in progress
 - 💞️ I’m looking to collaborate on web projects
 - 📫 How to reach me ... kevinlew27@gmail.com
+- Hates being boxed-in
 
 **We are more than conquerors through him who loved us**
 
