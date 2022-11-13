@@ -5,6 +5,8 @@
 - 🌱 I’m currently learning Vue 3 / Alphine JS and Flutter
 - 🙏 God's work in progress
 - 💞️ I’m looking to collaborate on web projects
+- 💼 I run a job portal
+- 🌐 I create custom web applications
 - 📫 How to reach me ... kevinlew27@gmail.com
 - Hates being boxed-in
 
