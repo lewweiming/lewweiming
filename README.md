@@ -7,7 +7,7 @@
 - 💞️ I’m looking to collaborate on web projects
 - 💼 I run a job portal
 - 🌐 I create custom web applications
-- 📫 How to reach me ... kevinlew27@gmail.com
+- 📫 How to reach me ... kevinlew27@gmail.com (I may not always reply due to my busy schedule, so don't be disappointed!)
 - Hates being boxed-in
 
 **We are more than conquerors through him who loved us**
