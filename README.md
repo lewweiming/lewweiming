@@ -6,7 +6,7 @@
 - 🙏 God's work in progress
 - 💞️ I’m looking to collaborate on web projects
 - 💼 Runs a job portal
-- 🌐 I can reate custom web applications
+- 🌐 I can create custom web applications
 - 📫 How to reach me ... kevinlew27@gmail.com (I may not always reply due to my busy schedule, so don't be disappointed!)
 - Hates being boxed-in
 
