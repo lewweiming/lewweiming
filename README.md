@@ -21,7 +21,7 @@
 
 📦 Hates being boxed-in
 
-**We are more than conquerors through him who loved us**
+✝️ We are more than conquerors through him who loved us
 
 <!---
 lewweiming/lewweiming is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
