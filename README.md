@@ -1,6 +1,6 @@
 👋 Hi, I’m Kevin Lew
 - Developer in the Travel / Tech Industry
-- Global Changemaker
+- Global Changemaker (Aren't we all 😊)
 - 👀 I’m interested in scuba diving, climate science, oceanic exploration, space exploration, physics, internet technology, social justice, democracy, education ..
 - 🧡 I love exploration!
 - 🌱 I’m currently learning Vue 3 / Alphine JS and Flutter
