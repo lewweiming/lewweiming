@@ -13,6 +13,7 @@
 🙏 God's work in progress
 
 💞️ I’m looking to collaborate on web projects
+
 💼 Runs a job portal
 
 🌐 I can create custom web applications
