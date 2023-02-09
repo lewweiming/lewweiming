@@ -8,6 +8,8 @@
 
 🧡 I love exploration!
 
+🤿 Becoming A Better Scuba Diver, everyday!
+
 🌱 I’m currently learning Vue 3 / Alphine JS and Flutter
 
 🙏 God's work in progress
