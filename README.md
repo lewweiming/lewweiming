@@ -1,6 +1,6 @@
 👋 Hi, I’m Kevin Lew
 
-👨‍💻 Developer in the Travel / Tech Industry
+👨‍💻 Developer in the Travel / Tech / Technical Diving Industry
 
 🌈 Global Changemaker (Aren't we all 😊)
 
