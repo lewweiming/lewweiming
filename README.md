@@ -26,7 +26,10 @@
 
 ✝️ We are more than conquerors through him who loved us
 
-<!---
-lewweiming/lewweiming is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+## Just For Fun
+
+**What is the most challenging job in 2023?**
+
+The most challenging job for me is to find enough money to go on "Ice Diving" expeditions. Ice diving expeditions require expensive equipment, training and travel. And to be able do so requires an extra-ordinary amount of effort and planning.
+
+
