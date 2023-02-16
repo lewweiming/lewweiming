@@ -1,5 +1,7 @@
 👋 Hi, I’m Kevin Lew
 
+Aspires to be a technical rebreather diver, underwater videographer and documentary maker.
+
 👨‍💻 Developer in the Travel / Tech / Technical Diving Industry
 
 🌈 Global Changemaker (Aren't we all 😊)
