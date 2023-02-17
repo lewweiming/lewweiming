@@ -1,4 +1,4 @@
-👋 Hi, I’m Kevin Lew
+👋 Hi, I’m Kevin Lew (The Do-Gooder NGO Guy)
 
 Aspires to be a technical rebreather diver, underwater videographer and documentary maker.
 
