@@ -1,4 +1,4 @@
-👋 Hi, I’m Kevin Lew (The Do-Gooder NGO Guy)
+👋 Hi, I’m Kevin Lew
 
 Aspires to be a technical rebreather diver, oceanographer, underwater videographer and documentary maker. Exploring the world, one day at a time.
 
@@ -8,7 +8,7 @@ Aspires to be a technical rebreather diver, oceanographer, underwater videograph
 
 👀 I’m interested in scuba diving, climate science, oceanic exploration, space exploration, physics, internet technology, social justice, democracy, education ..
 
-🧡 I love exploration!
+🧡 I love exploration and being in nature! 🌲
 
 🤿 Becoming A Better Scuba Diver, everyday!
 
