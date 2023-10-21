@@ -12,7 +12,7 @@ Aspires to be a technical rebreather diver, oceanographer, underwater videograph
 
 🤿 Becoming A Better Scuba Diver, everyday!
 
-🌱 I’m currently learning Vue 3 / Alphine JS and Flutter
+🌱 I’m currently learning Vue 3 / Alphine JS / Flutter / Machine Learning
 
 🙏 God's work in progress
 
