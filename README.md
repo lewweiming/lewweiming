@@ -14,6 +14,8 @@ Aspires to be a technical rebreather diver, oceanographer, underwater videograph
 
 🌱 I’m currently learning Vue 3 / Alphine JS / Flutter / Machine Learning
 
+🖥 Machine Learning Practitioner
+
 🙏 God's work in progress
 
 💞️ I’m looking to collaborate on web projects
